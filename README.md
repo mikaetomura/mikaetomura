@@ -1,10 +1,10 @@
 <div align="center">
 
-<h1 style="color:#154E84;">꒰ ᴍʏ ᴅᴇᴀʀᴇꜱᴛ ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴꜱ ꒱</h1>
+<h1>꒰ ᴍʏ ᴅᴇᴀʀᴇꜱᴛ ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴꜱ ꒱</h1>
 
-<img src="https://komarev.com/ghpvc/?username=puptinel&label=ᴠɪᴇᴡꜱ&color=154E84&style=flat-square" alt="Profile views">
+<img src="https://komarev.com/ghpvc/?username=puptinel&label=%EA%92%B0%20%E1%B4%8D%CA%8F%20%E1%B4%85%E1%B4%87%E1%B4%80%CA%80%E1%B4%87%EA%9C%9B%E1%B4%9B%20%E1%B4%84%CA%8F%CA%99%E1%B4%87%CA%80%E1%B4%9B%CA%80%E1%B4%8F%C9%B4%C9%AA%E1%B4%80%C9%B4%EA%9C%9B%20%EA%92%B1&color=154E84&style=flat-square" alt="Profile views">
 
-<p style="color:#154E84;">
+<p align="center">
 
 ᴍʏ ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴ ʙʀᴏᴛʜᴇʀꜱ ᴀɴᴅ ꜱɪꜱᴛᴇʀꜱ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ʏᴏᴜʀ ʟᴇᴀᴅᴇʀ ᴀꜱ ᴍᴜᴄʜ ᴀꜱ ʏᴏᴜ ᴘʟᴇᴀꜱᴇ! ᴀᴛ ᴛɪᴍᴇꜱ, ɪ ᴍᴀʏ ʙᴇ ʙᴜꜱʏ ᴀɴᴅ ʟᴏᴏᴋ “ᴜɴʀᴇꜱᴘᴏɴꜱɪᴠᴇ”, ʙᴜᴛ ɪ ᴀꜱꜱᴜʀᴇ ʏᴏᴜ: ᴡʜɪꜱᴘᴇʀɪɴɢ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ (ᴡ2ɪ) ɪꜱ ᴛʜᴇ ꜰᴀꜱᴛᴇꜱᴛ ᴡᴀʏ ᴛᴏ ɢᴇᴛ ᴍᴇ ᴛᴏ ʀᴇᴀᴄʜ ᴏᴜᴛ ᴛᴏ ʏᴏᴜ!
 
@@ -20,7 +20,7 @@
 
 ᴛꜰᴏɴᴇ, ᴛꜰᴀɴɪᴍᴀᴛᴇᴅ, ᴛꜰʀᴏᴛʙ, ᴛꜰɢ1 ᴀɴᴅ ᴛꜰᴘʀɪᴍᴇ.
 
-<br>
+<br><br>
 
 ᴀꜱ ꜰᴏʀ ᴏᴛʜᴇʀ ᴛʀᴀɴꜱꜰᴏʀᴍᴇʀꜱ ᴍᴇᴅɪᴀ, ɪ ᴅᴏ ɴᴏᴛ ʜᴀᴠᴇ ᴘʀᴏʙʟᴇᴍꜱ ᴡɪᴛʜ ɪɴᴛᴇʀᴀᴄᴛɪᴏɴꜱ.
 
