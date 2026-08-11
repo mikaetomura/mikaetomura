@@ -3,7 +3,7 @@
 <font color="#154E84">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=puptinel&label=%EA%92%B0%20%E1%B4%8D%CA%8F%20%E1%B4%85%E1%B4%87%E1%B4%80%CA%80%E1%B4%87%EA%9C%9B%20%E1%B4%9B%20%E1%B4%84%CA%8F%CA%99%E1%B4%87%CA%80%E1%B4%9B%CA%80%E1%B4%8F%C9%B4%C9%AA%E1%B4%80%C9%B4%EA%9C%9B%20%EA%92%B1&color=154E84&style=flat-square" alt="  ꒰ ᴍʏ ᴅᴇᴀʀᴇꜱᴛ ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴꜱ ꒱  ">
+  <img src="https://komarev.com/ghpvc/?username=puptinel&label=%EA%92%B0%20%E1%B4%8D%CA%8F%20%E1%B4%85%E1%B4%87%E1%B4%80%CA%80%E1%B4%87%EA%9C%9B%20%E1%B4%9B%20%E1%B4%84%CA%8F%CA%99%E1%B4%87%CA%80%E1%B4%9B%CA%80%E1%B4%8F%C9%B4%C9%AA%E1%B4%80%C9%B4%EA%9C%9B%20%EA%92%B1&color=154E84&style=flat-square" alt="꒰ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴꜱ꒱">
 </p>
 
 <p align="center">
