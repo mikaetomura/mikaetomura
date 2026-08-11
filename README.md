@@ -3,7 +3,7 @@
 <font color="#154E84">
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=puptinel&label=ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴꜱ&color=154E84&style=flat-square" alt="ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴꜱ">
+<img src="https://komarev.com/ghpvc/?username=puptinel&label=Cybertronians&color=154E84&style=flat-square" alt="Cybertronians">
 </p>
 
 <p align="center">
