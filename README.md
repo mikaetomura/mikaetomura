@@ -1,16 +1,33 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**puptinel/puptinel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<h1 style="color:#154E84;">꒰ ᴍʏ ᴅᴇᴀʀᴇꜱᴛ ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴꜱ ꒱</h1>
 
-Here are some ideas to get you started:
+<img src="https://komarev.com/ghpvc/?username=puptinel&label=ᴠɪᴇᴡꜱ&color=154E84&style=flat-square" alt="Profile views">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p style="color:#154E84;">
+
+ᴍʏ ᴄʏʙᴇʀᴛʀᴏɴɪᴀɴ ʙʀᴏᴛʜᴇʀꜱ ᴀɴᴅ ꜱɪꜱᴛᴇʀꜱ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ʏᴏᴜʀ ʟᴇᴀᴅᴇʀ ᴀꜱ ᴍᴜᴄʜ ᴀꜱ ʏᴏᴜ ᴘʟᴇᴀꜱᴇ! ᴀᴛ ᴛɪᴍᴇꜱ, ɪ ᴍᴀʏ ʙᴇ ʙᴜꜱʏ ᴀɴᴅ ʟᴏᴏᴋ “ᴜɴʀᴇꜱᴘᴏɴꜱɪᴠᴇ”, ʙᴜᴛ ɪ ᴀꜱꜱᴜʀᴇ ʏᴏᴜ: ᴡʜɪꜱᴘᴇʀɪɴɢ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ (ᴡ2ɪ) ɪꜱ ᴛʜᴇ ꜰᴀꜱᴛᴇꜱᴛ ᴡᴀʏ ᴛᴏ ɢᴇᴛ ᴍᴇ ᴛᴏ ʀᴇᴀᴄʜ ᴏᴜᴛ ᴛᴏ ʏᴏᴜ!
+
+<br><br>
+
+ᴘʟᴇᴀꜱᴇ ʀᴇꜱᴘᴇᴄᴛ ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀꜱ ɪꜰ ʏᴏᴜ ᴅᴏ ɴᴏᴛ ᴡɪꜱʜ ᴛᴏ ᴇɴᴅ ᴜᴘ ɪɴ ꜱᴜʙ-ʟᴇᴠᴇʟ 50…
+
+<br><br>
+
+ᴘʀᴇꜰᴇʀᴀʙʟʏ ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ʏᴏᴜ ᴀʀᴇ ꜰʀᴏᴍ ᴛʜᴇ ᴛʀᴀɴꜱꜰᴏʀᴍᴇʀꜱ ꜰᴀɴᴅᴏᴍ. ɪ ᴀᴍ ᴍᴏꜱᴛ ɪɴᴠᴇꜱᴛᴇᴅ ɪɴ:
+
+<br>
+
+ᴛꜰᴏɴᴇ, ᴛꜰᴀɴɪᴍᴀᴛᴇᴅ, ᴛꜰʀᴏᴛʙ, ᴛꜰɢ1 ᴀɴᴅ ᴛꜰᴘʀɪᴍᴇ.
+
+<br>
+
+ᴀꜱ ꜰᴏʀ ᴏᴛʜᴇʀ ᴛʀᴀɴꜱꜰᴏʀᴍᴇʀꜱ ᴍᴇᴅɪᴀ, ɪ ᴅᴏ ɴᴏᴛ ʜᴀᴠᴇ ᴘʀᴏʙʟᴇᴍꜱ ᴡɪᴛʜ ɪɴᴛᴇʀᴀᴄᴛɪᴏɴꜱ.
+
+<br>
+
+ɪ ᴊᴜꜱᴛ ᴅᴏ ɴᴏᴛ ᴋɴᴏᴡ ᴛʜᴇ ʟᴏʀᴇ ᴀɴᴅ ᴇᴠᴇʀʏᴛʜɪɴɢ ᴛʜᴀᴛ ɢᴏᴇꜱ ᴀʟᴏɴɢ ᴡɪᴛʜ ɪᴛ.
+
+</p>
+
+</div>
