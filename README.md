@@ -26,8 +26,9 @@
 </div>
 
 <details>
-  <summary> example title</summary>
+  <summary> DNI </summary>
 
-  ### DNI
+  ### stuff
   1. if you're not jolly
+  2. if you create problems
 </details>
