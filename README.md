@@ -24,3 +24,10 @@
 </font>
 
 </div>
+
+<details>
+  <summary> example title</summary>
+
+  ### DNI
+  1. if you're not jolly
+</details>
