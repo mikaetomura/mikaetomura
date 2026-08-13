@@ -24,3 +24,9 @@
 </font>
 
 </div>
+
+<details>
+  <summary> ΛBOUƬ IПƬΣRΛCƬIOПS </summary>
+
+Feel free to cuddle and hugs/hide behind us (c+h), boop, kiss and sit next to us even if we are with a friend! Though please do not cover us up.
+</details>
