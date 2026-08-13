@@ -24,9 +24,3 @@
 </font>
 
 </div>
-
-<details>
-  <summary> DПI </summary>
-
-  If you’re any type of problematic and are bigoted.
-</details>
