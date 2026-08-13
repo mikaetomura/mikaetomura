@@ -26,7 +26,7 @@
 </div>
 
 <details>
-  <summary> ΛBOUƬ IПƬΣRΛCƬIOПS </summary>
+  <summary> ΛBOUƬ IПƬERΛCƬIOПS </summary>
 
-Feel free to cuddle and hugs/hide behind us (c+h), boop, kiss and sit next to us even if we are with a friend! Though please do not cover us up.
+Feel free to cuddle + hugs/hide behind us (c+h), boop, kiss and sit next to us even if we are with a friend! Though please do not cover us up, we don’t like it. We are actually someone fun, don’t let our ponies fool you into thinking we are scary and intimidating… We are not.
 </details>
