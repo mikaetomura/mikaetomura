@@ -21,3 +21,9 @@
 
 ✦ We can't believe we have to say this, but do not vent to us!!! Do not act negative or extremely depressed near us, we'll just block your chats. We are not dismissing or belittling your problems, everyone has some and even the same problems can have different impacts on each individual. But sometimes people whine over things where there is far worse around them. If you need comfort, we're sorry but we cannot provide it for you. We need to heal ourselves first, not break ourselves trying to save you.
 </details>
+
+<details>
+  <summary> ΛBOUƬ OUR POПIES </summary>
+
+DO NOT IN ANY CASE WITHOUT EXCEPTION COPY OR TAKE INSPIRATION OF ANY OF OUR PONIES, IT WILL BE CONSIDERED AS STEALING. Unless you are a friend of ours who heavily needs help with ONE part of the pony, we will help you on OUR OWN initiatives. Do not ask, you will receive nothing. And oh my God, if the pony you copy is one of my OCs, we will bite your head off. Not literally, we can't do this through our screen. But we'll make sure to make a callout document and make it go public
+</details>
