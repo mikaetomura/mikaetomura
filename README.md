@@ -32,5 +32,5 @@ Feel free to cuddle + hug/hide behind us (c+h), boop, kiss and sit next to us ev
 <details>
   <summary> BOUПDΛRIES </summary>
 
- Only talk to us if you speak English or French (our native language). We don’t mind if english is not your first language, but if during the whole conversation I need to translate everything you say it’ll just piss me off and I’ll stop responding. Especially since I hang out only on English servers… So I don’t see why you would join an English server to not use it.
+1. Only talk to us if you speak English or French (our native language). We don’t mind if english is not your first language, but if during the whole conversation I need to translate everything you say it’ll just piss me off and I’ll stop responding. Especially since I hang out only on English servers… So I don’t see why you would join an English server to not use it.
 </details>
