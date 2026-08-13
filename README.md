@@ -28,7 +28,6 @@
 <details>
   <summary> DNI </summary>
 
-  ### stuff
   1. if you're not jolly
   2. if you create problems
 </details>
