@@ -24,10 +24,3 @@
 </font>
 
 </div>
-
-<details>
-  <summary> DNI </summary>
-
-  1. if you're not jolly
-  2. if you create problems
-</details>
