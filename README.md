@@ -11,13 +11,13 @@
 
 ✦ Only talk to us if you speak English or French (our native language). We don’t mind if english is not your first language, but if during the whole conversation we need to translate everything you say it’ll just piss us off and we’ll stop responding. Especially since we hang out only on English servers… So we don’t understand the point of why you would join an English server to not use that language.
 
-✦ PLEASE.. OH PLEASE… DO NOT APPROACH US IF YOU HAVE A BAD REPUTATION!!! If you are hated by people then you know what you did for it to end up that way. Stay away from me.
+✦ PLEASE.. OH PLEASE… DO NOT APPROACH US IF YOU HAVE A BAD REPUTATION!!! If you are hated by people then you know what you did for it to end up that way. Stay away from us.
 </details>
 
 <details>
   <summary> DПI </summary>
 
-✦ If you’re any type of problematic and are bigoted. It does not matter if your taboo shit is fictional or not, IT DOES affect real life with real consequences. Same thing for pedos / zoos, people who like incest / stepcest, romanticize trauma, likes non-consensual stuff, sexualize minors and way more. Like can't you be normal? This shit is not a coping mechanism, you are just deranged.
+✦ If you’re any type of problematic and are bigoted. It does not matter if your taboo shit is fictional or not, IT DOES affect real life with real consequences. Same thing for pedos / zoos, people who like incest / stepcest, romanticize trauma, likes non-consensual stuff, sexualize minors and way more. Like can't you be normal? This shit is not a “coping mechanism”, you are just deranged.
 
 ✦ We can't believe we have to say this, but do not vent to us!!! Do not act negative or extremely depressed near us, we'll just block your chats. We are not dismissing or belittling your problems, everyone has some and even the same problems can have different impacts on each individual. But sometimes people whine over things where there is far worse around them. If you need comfort, we're sorry but we cannot provide it for you. We need to heal ourselves first, not break ourselves trying to save you.
 </details>
@@ -25,5 +25,5 @@
 <details>
   <summary> ΛBOUƬ OUR POПIES </summary>
 
-DO NOT IN ANY CASE WITHOUT EXCEPTION COPY OR TAKE INSPIRATION OF ANY OF OUR PONIES, IT WILL BE CONSIDERED AS STEALING. Unless you are a friend of ours who heavily needs help with ONE part of the pony, we will help you on OUR OWN initiatives. Do not ask, you will receive nothing. And oh my God, if the pony you copy is one of my OCs, we will bite your head off. Not literally, we can't do this through our screen. But we'll make sure to make a callout document and make it go public
+DO NOT IN ANY CASE WITHOUT EXCEPTION COPY OR TAKE INSPIRATION OF ANY OF OUR PONIES, IT WILL BE CONSIDERED AS STEALING. Unless you are a friend of ours who heavily needs help with ONE part of the pony, we will help you on OUR OWN initiatives. Do not ask, you will receive nothing. And oh my God, if the pony you copy is one of my OCs, we will bite your head off. Not literally, we can't do this through our screen. But we'll make sure to make a callout document and make it go public.
 </details>
