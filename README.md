@@ -21,7 +21,7 @@
 
 ✦ We can't believe we have to say this, but do not vent to us!!! Do not act negative or extremely depressed near us, we'll just block your chats. We are not dismissing or belittling your problems, everyone has some and even the same problems can have different impacts on each individual. But sometimes people whine over things where there is far worse around them. If you need comfort, we're sorry but we cannot provide it for you. We need to heal ourselves first, not break ourselves trying to save you.
 
-✦ This one is personal, but don’t interact if you’re rude / mean / dry or a so-called “nonchalant”... You’re not slick brochaching. Cool people are jolly.
+✦ This one is personal, but don’t interact if you’re rude / mean / dry or a so-called “nonchalant”... You’re not slick brochaching, cool people are jolly.
 </details>
 
 <details>
