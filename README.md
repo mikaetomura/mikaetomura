@@ -13,7 +13,7 @@
 <details>
   <summary> ✦ Abσυƚ Pσnყƚσɯn </summary>
 
-Feel free to cuddle + hug / hide BEHIND me (c+h), boop, kiss and sit NEXT to me even if I am with a friend or away from keyboard (afk)! Though please DO NOT COVER ME UP, I don’t like it. If I am unresponsive, then I am probably offtab! In that case, you can whisper to interact (w2i) and I usually answer very fast unless my pony’s name says “sleeping / asleep / at work”. If you have a pony from any of my fandoms listed PLEASEEEEEEEE interact with me. Also want to mention I do not do roleplays or ships! I am not very judgmental of your preferences, really, you can ship anything as long as it is not problematic, but do not involve me.
+Feel free to cuddle, hug, hide BEHIND me, boop, kiss and sit NEXT to me even if I am with a friend or afk! Though please DO NOT COVER ME UP, I don’t like it. If I am unresponsive, then I am probably offtab! In that case, you can whisper to interact (w2i) and I usually answer very fast unless my pony’s name says “sleeping / asleep / at work”. If you have a pony from any of my fandoms listed PLEASEEEEEEEE interact with me. Also want to mention I do not do roleplays or ships! I am not very judgmental of your preferences, really, you can ship anything as long as it is not problematic, but do not involve me.
 </details>
 
 <details>
@@ -33,4 +33,11 @@ I am a digital artist, character designer, world builder and lore writer! I am n
 
 Basic dni criterias.. If you are problematic, bigoted, rude or have a bad reputation, do not approach me.
 I also do not forgive once trust is broken as people never truly change and bad behaviors may repeat. If you have done something bad, then you have to assume the consequences of your acts. I am someone patient but I have my own limits.
+</details>
+
+<details>
+  <summary> ✦ Exƚɾα </summary>
+
+Just a random note, but if you have any songs similar to the ones below, please DM me!!!
+"Those who can't, cheat" by Clarence Clarity . ✦ . "Concertina Ballerina" by Alternative Radio . ✦ . "RUBBERZ" By Fenix Flexin . ✦ . "Loser" by Tame Impala . ✦ . "Die by numbers" By Ashbury heights.
 </details>
