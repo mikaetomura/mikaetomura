@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  <img src="./illusion-text.svg" alt="“ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”">
+$\color{#C0BB93}{\textsf{“ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”}}$
 </p>
 
 <details>
