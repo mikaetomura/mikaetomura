@@ -11,7 +11,15 @@
 </p>
 
 <p align="center">
-  <img src="https://dummyimage.com/1200x80/C0BB93/C0BB93.png&text=%E2%80%9C+The+illusion+of+living+was+only+the+beginning%E2%80%A6+In+incarnate+thats+sining+presented+in+silly+vision+%21+%E2%80%9D" alt="“ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”">
+  <svg width="100%" height="60" viewBox="0 0 1200 60" xmlns="http://www.w3.org/2000/svg">
+    <text x="600" y="38"
+          text-anchor="middle"
+          fill="#C0BB93"
+          font-family="serif"
+          font-size="22">
+      “ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”
+    </text>
+  </svg>
 </p>
 
 <details>
