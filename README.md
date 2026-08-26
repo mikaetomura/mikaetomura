@@ -17,14 +17,14 @@ Feel free to cuddle + hug / hide BEHIND me (c+h), boop, kiss and sit NEXT to me 
 </details>
 
 <details>
+  <summary> ✦ Fαnԃσms </summary>
+
+Bendy (specifically BATIM) ⋮ Cuphead ⋮ All FNAFs ⋮ Hello Neighbor ⋮ UTDR / Underverse ⋮ Granny ⋮ Baldi ⋮ Creepypasta ⋮ SCP ⋮ Transformers (specifically TFA, TFOne, TFG1, TFROTB and TFPrime) ⋮ Yandere Simulator (I do not support YandereDev) ⋮ Apex Legends + Titanfall 2 ⋮ R.E.P.O ⋮ Doki Doki Literature Club ⋮ Team Fortress 2 ⋮ Tankman (not the fnf version, the original one) ⋮ and more...
+</details>
+
+<details>
   <summary> ✦ DNIs </summary>
 
 Basic dni criterias.. If you are problematic, bigoted, rude or have a bad reputation, do not approach me.
 I also do not forgive once trust is broken as people never truly change and bad behaviors may repeat. If you have done something bad, then you have to assume the consequences of your acts. I am someone patient but I have my own limits.
-</details>
-
-<details>
-  <summary> ✦ Fαnԃσms </summary>
-
-Bendy (specifically BATIM) ⋮ Cuphead ⋮ All FNAFs ⋮ Hello Neighbor ⋮ UTDR / Underverse ⋮ Granny ⋮ Baldi ⋮ Creepypasta ⋮ SCP ⋮ Transformers (specifically TFA, TFOne, TFG1, TFROTB and TFPrime) ⋮ Yandere Simulator (I do not support YandereDev) ⋮ Apex Legends + Titanfall 2 ⋮ R.E.P.O ⋮ Doki Doki Literature Club ⋮ Team Fortress 2 ⋮ Tankman (not the fnf version, the original one) ⋮ and more...
 </details>
