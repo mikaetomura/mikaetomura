@@ -20,6 +20,7 @@ Feel free to cuddle + hug / hide BEHIND me (c+h), boop, kiss and sit NEXT to me 
   <summary> ✦ Fαnԃσms </summary>
 
 Fandoms I'm IN: Bendy (specifically BATIM) ⋮ Cuphead ⋮ All FNAFs ⋮ Hello Neighbor ⋮ UTDR / Underverse ⋮ Granny ⋮ Baldi ⋮ Creepypasta ⋮ SCP ⋮ Transformers (specifically TFA, TFOne, TFG1, TFROTB and TFPrime) ⋮ Yandere Simulator (I do not support YandereDev) ⋮ Apex Legends + Titanfall 2 ⋮ R.E.P.O ⋮ Doki Doki Literature Club ⋮ Team Fortress 2 ⋮ Tankman (not the fnf version, the original one) ⋮ Invader Zim and more...
+
 Fandoms I kind of like but not very deeply into: Welcome Home ⋮ Resident Evil ⋮ Ultrakill ⋮ Vocaloids ⋮ The Walten Files etc...
 </details>
 
