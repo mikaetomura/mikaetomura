@@ -11,15 +11,7 @@
 </p>
 
 <p align="center">
-  <svg width="100%" height="60" viewBox="0 0 1200 60" xmlns="http://www.w3.org/2000/svg">
-    <text x="600" y="38"
-          text-anchor="middle"
-          fill="#C0BB93"
-          font-family="serif"
-          font-size="22">
-      “ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”
-    </text>
-  </svg>
+  <img src="./illusion-text.svg" alt="“ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”">
 </p>
 
 <details>
