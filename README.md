@@ -17,12 +17,15 @@ Feel free to cuddle + hug / hide BEHIND me (c+h), boop, kiss and sit NEXT to me 
 </details>
 
 <details>
-  <summary> ✦ Fαnԃσms </summary>
+  <summary> ✦ AႦσυƚ mҽ </summary>
 
+I'm Mikae and I'm 20 years old (birthday: 9th september). I'm overall pretty shy but non-judgmental and VERY open minded. Please use only it / its / this / thing when referring to me! I don't consider myself as a person and referring to me as these is pretty comforting. I also briefly want to mention that might use "we / us" when talking.
+</details>
 
-Fandoms I'm IN: Bendy (specifically BATIM)  ⋮   Cuphead   ⋮   All FNAFs   ⋮   Hello Neighbor   ⋮   UTDR / Underverse   ⋮   Granny   ⋮   Baldi   ⋮   Creepypasta   ⋮   SCP   ⋮   Transformers (specifically TFA, TFOne, TFG1, TFROTB and TFPrime)   ⋮   Yandere Simulator (I do not support YandereDev)   ⋮   Apex Legends + Titanfall 2   ⋮   R.E.P.O   ⋮   Doki Doki Literature Club   ⋮   Team Fortress 2   ⋮   Tankman (not the fnf version, the original one)   ⋮   Invader Zim and more...
+<details>
+  <summary> ✦ AႦσυƚ Aɾƚ </summary>
 
-Fandoms I kind of like but not very deeply into:   Welcome Home   ⋮   Resident Evil   ⋮   Ultrakill   ⋮   Vocaloids   ⋮   The Walten Files etc...
+I am a digital artist, character designer, world builder and lore writer! I am not yet posting my art publicly as I am focused on drawing references of all my creations... Although I have my commissions open and am open to art trades at any time! If you're interested just DM me Discord [@devotedmikae].
 </details>
 
 <details>
