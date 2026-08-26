@@ -29,7 +29,7 @@ I am a digital artist, character designer, world builder and writer! I am not ye
 </details>
 
 <details>
-  <summary> ✦ inƚҽɾҽsƚs </summary>
+  <summary> ✦ Inƚҽɾҽsƚs </summary>
 
 I love everything that: has Baroque aesthetics, has luxurious appearances, is old-fashioned or extremely futuristic. I also adore topics that talk about angels, demons, robots and mythical creatures. I adore creating things and people who make extremely original things literally have my heart. 
 </details>
