@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  <span style="color: #C0BB93;">“ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”</span>
+  <img src="https://dummyimage.com/1200x80/C0BB93/C0BB93.png&text=%E2%80%9C+The+illusion+of+living+was+only+the+beginning%E2%80%A6+In+incarnate+thats+sining+presented+in+silly+vision+%21+%E2%80%9D" alt="“ The illusion of living was only the beginning… In incarnate thats sinning presented in silly vision ! ”">
 </p>
 
 <details>
