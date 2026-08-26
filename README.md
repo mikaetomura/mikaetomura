@@ -25,7 +25,7 @@ I'm Mikae and I'm 20 years old (birthday: 9th september). I'm overall pretty shy
 <details>
   <summary> ✦ AႦσυƚ Aɾƚ </summary>
 
-I am a digital artist, character designer, world builder and lore writer! I am not yet posting my art publicly as I am focused on drawing references of all my creations... Although I have my commissions open and am open to art trades at any time! If you're interested just DM me Discord [@devotedmikae].
+I am a digital artist, character designer, world builder and writer! I am not yet posting my art publicly as I am focused on drawing references of all my creations... Although I have my commissions open and am open to art trades at any time! If you're interested just DM me Discord [@devotedmikae].
 </details>
 
 <details>
