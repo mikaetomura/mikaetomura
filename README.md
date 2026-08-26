@@ -26,5 +26,5 @@ I also do not forgive once trust is broken as people never truly change and bad 
 <details>
   <summary> ✦ Fαnԃσms </summary>
 
-Bendy (specifically BATIM) ⋮ Cuphead ⋮ All FNAFs ⋮ Hello Neighbor ⋮ UTDR / Underverse ⋮ Granny ⋮ Baldi ⋮ Creepypasta ⋮ SCP ⋮ Transformers (specifically TFA, TFOne, TFG1, TFROTB and TFPrime) ⋮ Yandere Simulator (I do not support YandereDev) ⋮ Apex Legends + Titanfall 2 ⋮ R.E.P.O ⋮ Doki Doki Literature Club ⋮ Team Fortress 2 ⋮ and more...
+Bendy (specifically BATIM) ⋮ Cuphead ⋮ All FNAFs ⋮ Hello Neighbor ⋮ UTDR / Underverse ⋮ Granny ⋮ Baldi ⋮ Creepypasta ⋮ SCP ⋮ Transformers (specifically TFA, TFOne, TFG1, TFROTB and TFPrime) ⋮ Yandere Simulator (I do not support YandereDev) ⋮ Apex Legends + Titanfall 2 ⋮ R.E.P.O ⋮ Doki Doki Literature Club ⋮ Team Fortress 2 ⋮ Tankman (not the fnf version, the original one) ⋮ and more...
 </details>
