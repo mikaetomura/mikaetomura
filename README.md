@@ -1,5 +1,5 @@
 <p align="center">
-  <text Last page update: 26th august 2026>
+  <Last page update: 26th august 2026>
 </p>
 
 <p align="center">
