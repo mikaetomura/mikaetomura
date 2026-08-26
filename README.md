@@ -10,6 +10,8 @@
   <img src="https://64.media.tumblr.com/d287e0a767f6b874b94f79e6470f514d/27ff882cc7c5490b-c4/s540x810/9c623e7227bcdd113b26335922032c05f347bfcd.pnj" width="300" alt="Sƚαlƙeɾs ✦">
 </p>
 
+$\color{#C0BB93}{\textsf{“ The illusion of living was only the beginning… Ink incarnate thats sinning presented in silly vision ! ” .}}$
+
 <details>
   <summary> ✦ Abσυƚ Pσnყƚσɯn </summary>
 
