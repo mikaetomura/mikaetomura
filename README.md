@@ -1,6 +1,4 @@
-<p align="center">
-  <Last page update: 26th august 2026>
-  </p>
+Lαʂƚ ραɠҽ υρԃαƚҽ: 29ƚԋ σϝ αυɠυsƚ 2σ26
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=mikaetomura&color=C0BB93&style=for-the-badge&label=stalkers+✦" alt="stalkers ✦">
