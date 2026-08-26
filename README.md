@@ -38,6 +38,6 @@ I also do not forgive once trust is broken as people never truly change and bad 
 <details>
   <summary> ✦ Exƚɾα </summary>
 
-Just a random note, but if you have any songs similar to those listed, please DM me!!!
+Just a random note, but if you have any songs similar to those listed, please DM them to me!!!
 "Those who can't, cheat" by Clarence Clarity . ✦ . "Concertina Ballerina" by Alternative Radio . ✦ . "RUBBERZ" By Fenix Flexin . ✦ . "Loser" by Tame Impala . ✦ . "Die by numbers" By Ashbury heights.
 </details>
