@@ -1,4 +1,8 @@
 <p align="center">
+  <text Last page update: 26th august 2026>
+</p>
+
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=mikaetomura&color=C0BB93&style=for-the-badge&label=stalkers+✦" alt="stalkers ✦">
 </p>
 
